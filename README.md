@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate to find a job in IT field
 - 📫 How to reach me: necula.valentin85@yahoo.com / https://www.linkedin.com/in/necula-valentin/
 - 😄 Pronouns: Vali
-- ⚡ Fun fact: I don't know how a bodybuilder could be a programmer but hey...let's try:)
+- ⚡ Fun fact: I don't know how a bodybuilder could be a programmer, but hey...let's try:)
 
 
 
